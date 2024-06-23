@@ -1,1 +1,1 @@
-# motionvectorca.github.io
+© MotionVector Inc. All rights reserved.
